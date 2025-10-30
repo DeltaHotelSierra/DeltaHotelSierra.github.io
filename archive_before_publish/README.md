@@ -1,1 +1,0 @@
-# DeltaHotelSierra.github.io
